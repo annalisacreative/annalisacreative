@@ -1,4 +1,4 @@
-### Hi there, I'm Annalisa - aka Annalisa Creative 👋
+### Hi there, I'm Annalisa - aka Annalisa Creative 👋🏿
 
 ## I'm a Mom, Developer, Content Creator and JJBA Fan!
 - 🔭 I’m currently working on random projects!
